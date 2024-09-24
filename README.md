@@ -3,7 +3,7 @@
 
 Top 10 Business Questions:
 
-• Q1: Check mobile features and price list
+• Q1: Check mobile features and Price list
 
 • Q2: Find out the price of 5 most expensive phones
 
